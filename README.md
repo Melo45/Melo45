@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Melo45
+- 👀 I’m interested in stuff
+- 🌱 I’m currently learning coding
